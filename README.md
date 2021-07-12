@@ -1,2 +1,0 @@
-# nederlandse-totaal-burgeroorlog
-op alle fronten tegelijk
